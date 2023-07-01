@@ -337,3 +337,60 @@ Step11
 ![image](https://github.com/Alpha-022/images2/assets/104521086/1bb17141-e942-4b0e-9fc3-5d6007745619)
 ![image](https://github.com/Alpha-022/images2/assets/104521086/9ae9b96d-22a3-4b95-964b-af9e8d99e8a0)
 ![image](https://github.com/Alpha-022/images2/assets/104521086/26b67e5e-c8ba-4768-9dbe-5b8a6fddbc4b)
+
+
+# CDL Section 13 Step 07
+![image](https://github.com/Alpha-022/images2/assets/104521086/0b8b152e-1c51-4237-84af-c4a807365181)
+![image](https://github.com/Alpha-022/images2/assets/104521086/6fb95930-6b93-4ecb-af47-34a2ae207b2e)
+![image](https://github.com/Alpha-022/images2/assets/104521086/c6e8d0a8-571a-45d1-ba56-dffa438adcbd)
+![image](https://github.com/Alpha-022/images2/assets/104521086/7b0c8241-b1af-4df6-b7b4-9c4a89cb2f97)
+![image](https://github.com/Alpha-022/images2/assets/104521086/911205b5-c99d-486b-bf4d-039851648539)
+![image](https://github.com/Alpha-022/images2/assets/104521086/cb6259cd-e97d-4a77-961e-804cbfacda53)
+
+# CDL Section 13 Step 11
+![image](https://github.com/Alpha-022/images2/assets/104521086/6f3ea740-ad46-4686-8989-09e907dbbf21)
+![image](https://github.com/Alpha-022/images2/assets/104521086/cc8ee736-2466-4410-a074-0d71d511e581)
+![image](https://github.com/Alpha-022/images2/assets/104521086/10fa1dbd-843f-41a7-a2ac-419430813420)
+![image](https://github.com/Alpha-022/images2/assets/104521086/a00d7f16-8f74-4c02-9ba6-ebfce9d1f1cf)
+![image](https://github.com/Alpha-022/images2/assets/104521086/08604852-f417-4247-b40d-9980a1c5436d)
+![image](https://github.com/Alpha-022/images2/assets/104521086/72c36e3e-5d72-4ceb-a394-d33f1a21f187)
+![image](https://github.com/Alpha-022/images2/assets/104521086/94249190-10c1-4336-b6a7-f481be7ebeff)
+![image](https://github.com/Alpha-022/images2/assets/104521086/407a75e2-e3f1-4c18-b612-1483f477a42a)
+![image](https://github.com/Alpha-022/images2/assets/104521086/a0edd536-b72f-4ef8-bd6f-cf95b8bf6f5d)
+![image](https://github.com/Alpha-022/images2/assets/104521086/d998ef62-94f6-433f-8175-40b4e8564cac)
+
+# CDL Section 13 Step 12
+
+![image](https://github.com/Alpha-022/images2/assets/104521086/357f1fd9-66de-4a21-885b-dda40cd5d8a7)
+![image](https://github.com/Alpha-022/images2/assets/104521086/0e2f9db3-e771-4f22-b106-3e6557d87bcc)
+![image](https://github.com/Alpha-022/images2/assets/104521086/791b2de6-f431-4af5-aece-b756458927eb)
+![image](https://github.com/Alpha-022/images2/assets/104521086/927b21c8-cfe9-4d66-aa50-34b4148e8555)
+![image](https://github.com/Alpha-022/images2/assets/104521086/958d9dbe-f17e-4ce8-ab6b-8574f44afb35)
+![image](https://github.com/Alpha-022/images2/assets/104521086/f609d1f9-1d5a-4892-a834-fc74801da453)
+![image](https://github.com/Alpha-022/images2/assets/104521086/057e9914-995e-4cb2-8729-040d034a6a66)
+
+# CDL Section 13 Step 14
+
+![image](https://github.com/Alpha-022/images2/assets/104521086/e2339551-4527-4790-bff3-b0455a208d2b)
+![image](https://github.com/Alpha-022/images2/assets/104521086/98b11e45-313a-423a-a4db-0419c99773a6)
+![image](https://github.com/Alpha-022/images2/assets/104521086/0f3a2041-5c86-4720-ae2c-75a4198abb3c)
+![image](https://github.com/Alpha-022/images2/assets/104521086/a4dc33d1-e725-4b02-83b5-94408d600e94)
+![image](https://github.com/Alpha-022/images2/assets/104521086/d5193078-5ff8-461e-9b9a-6c16b07492de)
+![image](https://github.com/Alpha-022/images2/assets/104521086/9ea7cf61-f9ee-44be-ad62-48c88d841b60)
+![image](https://github.com/Alpha-022/images2/assets/104521086/89fec95a-31a1-4c41-8116-f44797425973)
+![image](https://github.com/Alpha-022/images2/assets/104521086/cc3f2f44-568c-4523-a10f-7c4095c6c5ba)
+![image](https://github.com/Alpha-022/images2/assets/104521086/1f1e750c-7650-4218-b6e2-79de623433f7)
+![image](https://github.com/Alpha-022/images2/assets/104521086/52b70971-119a-4334-ab90-dc9ce0195d82)
+![image](https://github.com/Alpha-022/images2/assets/104521086/cf67cc05-e7fd-4963-b9bf-b85ef03a8156)
+![image](https://github.com/Alpha-022/images2/assets/104521086/531e33d7-eddb-4138-b463-f39b94d3af9e)
+![image](https://github.com/Alpha-022/images2/assets/104521086/a48ce378-4846-4c32-bdec-21f52c84d99e)
+
+
+# CDL Section 16 Step 04
+
+![image](https://github.com/Alpha-022/images2/assets/104521086/3f3b3885-91fd-481e-b860-5fea1aa59c77)
+![image](https://github.com/Alpha-022/images2/assets/104521086/3c311fb7-997b-4a02-9ee1-04e8a92fb3b1)
+![image](https://github.com/Alpha-022/images2/assets/104521086/3274c3dc-a1cb-4717-aaaf-82f8133ef077)
+![image](https://github.com/Alpha-022/images2/assets/104521086/1fc1243d-122a-4573-bdaa-70d681f6e5b5)
+![image](https://github.com/Alpha-022/images2/assets/104521086/106b6ac2-9061-4985-866b-753cea01592b)
+![image](https://github.com/Alpha-022/images2/assets/104521086/c2f519b9-0218-4307-ac2f-9728f49d9eeb)
