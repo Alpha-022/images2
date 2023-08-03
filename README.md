@@ -657,3 +657,13 @@ Section 09 Step15
 ![image](https://github.com/Alpha-022/images2/assets/104521086/e335f41a-4570-4a6f-88d9-7dc6bd6c00ec)
 ![image](https://github.com/Alpha-022/images2/assets/104521086/2d591181-158d-44c4-b617-b4487a264934)
 ![image](https://github.com/Alpha-022/images2/assets/104521086/8de534fb-66d3-4eb0-887b-9437f72e3711)
+
+![image](https://github.com/Alpha-022/images2/assets/104521086/a7b8f790-eb9c-4576-b47d-87b18d94d76c)
+![image](https://github.com/Alpha-022/images2/assets/104521086/03c7152a-04fa-4159-b109-189c80b65d85)
+![image](https://github.com/Alpha-022/images2/assets/104521086/2d679548-d42a-427e-9819-99a2e081ad78)
+![image](https://github.com/Alpha-022/images2/assets/104521086/87aab9b8-2d28-4e5d-9ae3-b7bf3908f601)
+![image](https://github.com/Alpha-022/images2/assets/104521086/adb5aba5-aa26-49ad-b7e7-94f1bdbbd8a3)
+![image](https://github.com/Alpha-022/images2/assets/104521086/d436f272-bdb8-47f9-8901-08d1c6537dd7)
+![image](https://github.com/Alpha-022/images2/assets/104521086/d436f272-bdb8-47f9-8901-08d1c6537dd7)
+![image](https://github.com/Alpha-022/images2/assets/104521086/36e03301-bf9f-4a6c-83dc-d7ed44b0766b)
+
