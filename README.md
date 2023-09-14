@@ -885,3 +885,13 @@ Section 09 Step15
 ![image](https://github.com/Alpha-022/images2/assets/104521086/bb4da969-2d8e-4b39-8dc9-5b1a42a2fd34)
 ![image](https://github.com/Alpha-022/images2/assets/104521086/42fe0aa2-d516-4007-b6f2-bdfd7bf3f560)
 ![image](https://github.com/Alpha-022/images2/assets/104521086/ce781329-cf6a-4517-9a7c-ac9440a2bc5f)
+
+
+![image](https://github.com/Alpha-022/images2/assets/104521086/0017f2ec-951e-45c3-ab78-c96149a7ddea)
+![image](https://github.com/Alpha-022/images2/assets/104521086/80cb26fd-03c0-4ec0-92e8-9ec98d6302b1)
+![image](https://github.com/Alpha-022/images2/assets/104521086/ae8265df-30ab-4d3d-a035-8aa17fea6c33)
+![image](https://github.com/Alpha-022/images2/assets/104521086/2b3aa28e-de4f-4bda-a7b4-feda4718c572)
+![image](https://github.com/Alpha-022/images2/assets/104521086/5f6b5dd2-e70e-4f86-9129-02e152d150fe)
+![image](https://github.com/Alpha-022/images2/assets/104521086/7a89e7ed-3454-4a6b-b5d7-e0c1d8109713)
+![image](https://github.com/Alpha-022/images2/assets/104521086/2d2dda01-2c9f-4181-9b37-4176d7ca40f8)
+
